@@ -1,0 +1,2 @@
+# SWF-1.512
+Transformice SWF 1.512 UNPROTECTED
